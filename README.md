@@ -1,1 +1,0 @@
-# girkrat.github.io
